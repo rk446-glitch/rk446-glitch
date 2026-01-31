@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Raj Kshirsagar
-**A passionate Software Engineer || Full Stack Developer || Gen Ai & ML Engineer || Data Analysis**
+**A passionate Software Engineer || Full Stack Developer || Gen Ai & ML Engineer || Data Analysist**
 
 Email Me 👉 ✉️ **rajkshirsagar446@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 ## 🌐 Socials:
