@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Raj Kshirsagar
 **A passionate Software Engineer || Full Stack Developer || Gen Ai & ML Engineer || Data Analysis**
 
-Email Me 👉 ✉️ **alamimran613@live.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **rajkshirsagar446@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/nickname_31) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/raj-kshirsagar-) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/nickname_31) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:rajkshirsagar446@gmail.com) 
 
